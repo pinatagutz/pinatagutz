@@ -22,3 +22,9 @@ INT!
 - furries
 - uhmmmmm other dandys world fans!!
 - oc x canon ppl :3
+
+![artworks-000147652601-dyow0k-t500x500(1)](https://github.com/user-attachments/assets/3940bc7d-3639-450a-a1e1-09ca69648e49)
+
+
+(I LOVE JACKAL ITS JUST WHY IS HE A N4ZIFUR </3 SOBS)
+im a big fan of lapfox trax!!! i LOOVEEE most aliases and uhhh yeah
