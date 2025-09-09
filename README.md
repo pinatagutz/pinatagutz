@@ -13,7 +13,9 @@ im a huuugggeee fan of :
   DNI!
 - proship, darkship, maps, zoos, all the basic dni stuff
 - radqueer
-- HEAVY ON OBJECTUM
+- uh soft on objectum ig since someone asked me what my problem was so uhhhyeah
+still somewhat a dni
+read my strawpage instead.. ok??
 - sighs,,, spamtenna shippers who force it onto others (my sister)
 - PPL 18+,, IM A MINOR!!!
 - oc x canon haters
