@@ -1,6 +1,5 @@
 ## HIIII!!!
 [![HitCount](https://hits.dwyl.com/pinatagutz/pinatagutz.svg?style=flat-square)](http://hits.dwyl.com/pinatagutz/pinatagutz)
-## MY RENTRY DOESNT WORK RIGHT NOW SO YOU ARE GONNA HAVE TO USE STRAWPAGE INSTEAD ALL OF MY CATBOX HOSTS GOT DELETED
 i use he / they / she pronouns, i prefer he / they over she / her but you can use any!!!!
 im a huuugggeee fan of :
 - dandys world
