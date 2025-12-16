@@ -11,4 +11,5 @@ every day with you is so utterly
 
 <img width="1919" height="1079" alt="Screenshot 2025-12-10 004146" src="https://github.com/user-attachments/assets/63af20bd-9bd6-4c8f-bd27-cae55be652f4" />
 <img width="451" height="313" alt="Screenshot 2025-12-14 102912" src="https://github.com/user-attachments/assets/d9058d41-a5b5-4460-b655-3e5510d2b639" />
+<img width="450" height="309" alt="Screenshot 2025-12-16 at 16-04-39 StrawPage Dashboard" src="https://github.com/user-attachments/assets/e6c70c14-76ba-48bd-97a6-0a0a5fe0c543" />
 
