@@ -7,5 +7,11 @@ hi! my name is flynn, cao, eatitpup, pupspuja, or fruitcake! call me whatever is
 im <14 so please dont be weird about me..! \
 
 view my strawpage for better info about me \
-![](https://i.postimg.cc/tC8N9gr8/ezgif-22b04ad0a893ec.gif) ![](https://i.postimg.cc/vms76Nwz/ezgif-2bdbb3cc0a91b9.gif)
+![](https://i.postimg.cc/tC8N9gr8/ezgif-22b04ad0a893ec.gif) ![](https://i.postimg.cc/vms76Nwz/ezgif-2bdbb3cc0a91b9.gif) \
+~   ~   ~   ~   ~   ~   ~   ~   ~ \
+links to my pages \
+![](https://files.catbox.moe/pqppmf.png) [strawpage](https://fruitcakeontop.straw.page/) <img width="130" height="130" alt="tumblr-34b775d579437fbda39b2ca83d89799f-2999e53f-500(2)" src="https://github.com/user-attachments/assets/1225b675-c1e2-4b85-ae68-90605e6a484c" /> [tumblr](https://pupspuja.tumblr.com/)
 
+more under my bio
+
+ 
