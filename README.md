@@ -1,5 +1,5 @@
 
-<img width="900" height="100" alt="divider" src="https://github.com/user-attachments/assets/64f9e5f1-de4b-44f1-8785-a89a23827d73" />
+<img width="800" height="100" alt="divider" src="https://github.com/user-attachments/assets/64f9e5f1-de4b-44f1-8785-a89a23827d73" />
 
 ![](https://files.catbox.moe/5s8nuo.gif) ![](https://i.postimg.cc/TPJVjJRX/ezgif-2157359493c671.gif) ![](https://files.catbox.moe/c6i4pe.gif) ![](https://files.catbox.moe/fk0b33.gif) \
 ![](https://static.wikia.nocookie.net/dandys-world-robloxhorror/images/2/2e/Sprout_Ability_Icon.png/revision/latest/scale-to-width-down/30?cb=20240822002934) ~~..~~ \
