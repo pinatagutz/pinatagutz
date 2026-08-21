@@ -1,4 +1,3 @@
-<img width="300" height="239" alt="ref sheet actually" src="https://github.com/user-attachments/assets/7e820769-43e6-4da4-84ff-d4c000ae1513" />
 rudy / pupspuja \
 i rlly like dandysworld, sparklecare, deltarune, flavorfrenzy, lapfox, a lot more \
 im cool \
