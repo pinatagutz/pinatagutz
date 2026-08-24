@@ -1,6 +1,7 @@
 rudy / pupspuja \
 i rlly like dandysworld, sparklecare, deltarune, flavorfrenzy, lapfox, a lot more \
 im cool \
+i cant give less of a shit if you copy me or my style just don;'t claim that its ur own and its fine \
 https://thanksiknow.straw.page/ x https://artfight.net/~thanksiknow \
 <img width="364" height="497" alt="Screenshot 2026-08-21 130101" src="https://github.com/user-attachments/assets/7784456b-f151-435a-bfe5-25f47e50f83a" />
 
